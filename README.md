@@ -1,4 +1,3 @@
- **Seja bem vindo!**  
-     ∴ ∅ ∵
+   ∴ ∅ ∵
 
 
